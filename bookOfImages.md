@@ -7,3 +7,4 @@
 ![+AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/GitCasual/public/blob/master/6.PNG)
 ![+AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/GitCasual/public/blob/master/7.PNG)
 ![+AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/GitCasual/public/blob/master/9.PNG)
+![+AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/GitCasual/public/blob/master/EfVVft-WsAA5dDx.jpg)
